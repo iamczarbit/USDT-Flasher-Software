@@ -40,7 +40,7 @@ This Software Allows User to Flash USDT on any USDT Network
 
 📌6 Months wallet stay  
 
-📱 CZARBIT (https://t.me/czarbit)
+📱 [CZARBIT] (https://t.me/czarbit)
 
 ⬇️ [CHANNEL 1](https://t.me/btc_flash_hub)
 
