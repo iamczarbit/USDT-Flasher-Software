@@ -42,7 +42,7 @@ This Software Allows User to Flash USDT on any USDT Network
 
 📱 CZARBIT (https://t.me/czarbit)
 
-⬇️ (https://t.me/btc_flash_hub)
+⬇️ [CHANNEL 1](https://t.me/btc_flash_hub)
 
 [PUBLIC CHANNEL](https://t.me/czarbit_btc_flash)
 
